@@ -2,6 +2,7 @@
 #### Want this? Hit me up https://t.me/Lonerscode
 #### A fast tool for the big guys.
 *This is a project that helps you get your wishes of making more money from your comfort zone without having to go through a bit of stress*
+
 <b> FREE TEMPLATE FOR EVERYONE </b>
 
 UPDATED VERSION NOW AVAILABLE 
